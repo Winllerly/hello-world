@@ -1,2 +1,2 @@
-# hello-world
-Just another repository
+Hola, mucho gusto me llamo Winllerly  soy una chica común con una vida comun como cualquier otro no tabajo solo estudio  turismo tengo 15 años soy muy alta mido como 1.76 o algo así jeje,me gusta mucho los deportes y el modelaje pero lo que mas me gusta es la informatica....
+tengo 15 años de edad y no soy muy bueno haciendo amigo:C
